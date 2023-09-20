@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @miegorank
-- 👀 I’m interested in Programming
-- 🌱 I’m currently learning Android Studi
-- 💞️ I’m looking to collaborate on Github
+- 👀 I’m interested to you!
+- 🌱 I’m currently learning ikhlas
+- 💞️ I’m looking to collaborate on Arsenal
 - 📫 How to reach me @naufalnurfik7
 - 👩‍💻 I like playing football
 <!---
